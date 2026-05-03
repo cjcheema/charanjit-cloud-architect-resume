@@ -55,7 +55,7 @@ Mphasis, India (Nov 2024 – Present)
 
 ## 🔹 Resume
 
-📄 [Download Resume](./Charanjit Singh_Cloud_Architect_Resume.pdf)
+📄 [Download Resume](https://./Charanjit Singh_Cloud_Architect_Resume.pdf)
 
 ## 🔹 Connect With Me
 
